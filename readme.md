@@ -14,7 +14,7 @@ Utilizei o "ChatGPT" para revisar minha pesquisa sobre IAs Generativas, esrutura
 ## 🚀 Resultados
 Este Ebook desenvolve grandes oportunidades de crescrimento de uma equipe, sendo todo desenvolvido com o auxilo de IA, o conteúdo é de máxima relevância comparado a outros disponíveis na internet.
 
-**[Acesse o Ebook](https://drive.google.com/file/d/1tPWok11fZn0NTkutvuuHPex2n1H3I0DK/view?usp=sharing)**
+**[Acesse o E-book](https://drive.google.com/file/d/1tPWok11fZn0NTkutvuuHPex2n1H3I0DK/view?usp=sharing)**
 
 ## 💭 Reflexão (Opcional)
 criar este e-book foi uma esperiencia reveladora sobre o potencial criativo das IAs e como elas podem ser aplicadas em diferentes contextos. 
